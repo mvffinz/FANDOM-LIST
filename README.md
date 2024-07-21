@@ -29,3 +29,8 @@ KEY![toro-inoue-pixels-toro-inoue](https://github.com/user-attachments/assets/15
 𖦹 Cats Are Liquid 
 
 𖦹 FNAF
+
+𖦹 South Park![cc803115](https://github.com/user-attachments/assets/367d5ffe-34f9-457f-ba5d-0fa35d1fc5d2)
+
+𖦹 Homestuck ![cc803115](https://github.com/user-attachments/assets/ba113754-2413-4aec-95bb-53570784723f)
+
